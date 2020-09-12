@@ -1,0 +1,1 @@
+Egg, Flour, Flavouring Agent, Sugar, Whipped Cream, Baking Soda, Baking Powder
